@@ -8,3 +8,7 @@ O consumo humano da cannabis teve início no terceiro milênio a.C. e seu uso at
 
 A posse, o uso ou a venda da cannabis começou a se tornar ilegal no início do século XX em diversos países ocidentais, principalmente nos Estados Unidos. A proibição do consumo da erva se tornou global após a Convenção Internacional do Ópio, assinada em 1912 na cidade de Haia, quando diversas nações decidiram proibir o comércio mundial do "cânhamo indiano". Desde então, as leis que regulamentam a proibição da planta se intensificaram ao redor do mundo. Na últimas décadas, no entanto, surgiram diversos movimentos pela legalização da cannabis, enquanto alguns países e regiões passaram a permitir o uso do psicoativo sob certas circunstâncias, como foi o caso dos Países Baixos. Em 10 de dezembro de 2013, o Uruguai se tornou o primeiro país do mundo a legalizar o cultivo, a venda e o consumo da cannabis.[15]
 <img scr="![download (1)](https://user-images.githubusercontent.com/108406011/177547412-9cd606f9-57ef-4bfc-ab5b-fbe91e46f0a7.jpeg)">
+
+
+
+![nomeimagem](![download (1)](https://user-images.githubusercontent.com/108406011/177547597-9938c1b1-9c0f-42f5-b04d-6c7e7c673756.jpeg)
